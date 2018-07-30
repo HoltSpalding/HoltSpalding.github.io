@@ -1,4 +1,4 @@
 # holtspalding.github.io
 
-my website
+site is currently under constrution. be back online in august.
 
